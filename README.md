@@ -1,1 +1,1 @@
-lashmika new
+lashmika news
