@@ -1,7 +1,7 @@
 Monisha , Lashmika Listen , Message from Praveen
 
 
-lashmika , get up , eat and study and watch movie
+lashmika , today we have keyboard class , complete all the class
 
 
 send me message WhatsApp and getting this message
